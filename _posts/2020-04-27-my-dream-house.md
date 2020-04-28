@@ -6,30 +6,29 @@ I first thought of living in a mansion so big, but then I knew if I was that ric
 
  
 
-1 arcade
+1. Arcade
 
-2 ice skating rink
+2. Ice skating rink
 
-3 theater 
+3. Theater 
 
-4 video game room
+4. Video game room
 
-5 102 inch tv
+5. 102 inch tv
 
-6 swimming pool
+6. Swimming pool
 
-7 hot tub
+7. Hot tub
 
-8 toys
+8. Toys
 
-9 secret passageway 
+9. Secret passageway 
 
-10 super awesome bed
+10. super awesome bed
 
  
 
-Comes true!oh yeah if you like this be to tell me
+I hope it comes true. If you like my post, please do tell your friends and family about it and follow me in twitter @goodwritings1
 
-In Twitter bye thank😃
 
 
